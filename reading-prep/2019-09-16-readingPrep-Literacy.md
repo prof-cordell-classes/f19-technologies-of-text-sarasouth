@@ -10,3 +10,6 @@
 2. QUESTION/OBSERVATION 2:  Aelfric implies in his translation of Genesis that translation is dangerous. To what extent can meaning be lost through translation in writing?
 
 3. QUESTION/OBSERVATION 3: As mentioned in Amaranth Borsuk’s, The Book as Object, she states, “Authors do not write books, they write texts that become written objects, manuscripts, inscriptions, print matter, or today, material in a computer file.” Does this mean that in fact, the format of a book does not matter, but rather, the content?
+
+## Reflection
+If I were living in Octavia Butler’s world known as Speech Sound, I would rather be able to speak, as it’s usually evident that in our society, the people who are allowed to speak hold the power. There is a severe amount of tension due to the lack of ability to communicate within society, however, to uphold a civil society, it’s necessary to be able to speak. Using hand gestures and body language to convey meaning can be easily misconstrued.
