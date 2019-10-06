@@ -1,6 +1,6 @@
-# Reading Prep: CHAPTER NAME
+# Reading Prep: IMAGE
 
-#### YOUR NAME
+#### Sara South
 
 ## Questions or Observations
 
